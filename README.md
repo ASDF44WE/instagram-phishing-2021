@@ -24,4 +24,4 @@ Usage of Instagram Hacking Tool for attacking targets without prior mutual conse
 ### Donate to Lead Coder of this Tool!
 Support the authors:
 
-<noscript><a href="https://liberapay.com/thelinuxchoice/donate"><img alt="Donate using Liberapay" src="https://liberapay.com/assets/widgets/donate.svg"></a></noscript>
+join whatsapp group https://chat.whatsapp.com/Ha6YlH3egPF92GJVY6O9mq
